@@ -1,5 +1,5 @@
 # Induction Program At GNDEC
-Day 1
+# Day 1
 
 Our induction program began on a serene and soulful note with Shabad Kirtan at the Gurudwara Sahib within the campus. The peaceful start created a sense of belonging and calmness, setting the right mood for the journey ahead.
 
@@ -14,7 +14,7 @@ Later, Dr. Harpreet Kaur Grewal Mam , Head of the Applied Science Department, ad
 Then Dr. Parminder Singh Sir (Deen Student Welfare) enlightened us with his valuable words. Our Principal Sir welcomed us to the GNDEC family and emphasized discipline, continuous learning, and making the most of opportunities. The day ended with the Chief Guest’s inspiring words, urging us to work with dedication and curiosity, leaving a memorable close to Day 1 of the induction program.*
 
 
-Day 2
+# Day 2
 
 In the afternoon, Dr. Arashdeep Singh delivered an enlightening session on the pivotal role of food in a student’s life. He explained how balanced nutrition plays a crucial part in maintaining physical health, mental sharpness, and overall academic performance, while also encouraging us to adopt mindful eating habits.
 
