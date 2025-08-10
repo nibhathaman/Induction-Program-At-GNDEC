@@ -14,5 +14,8 @@ Later, Dr. Harpreet Kaur Grewal Mam , Head of the Applied Science Department, ad
 Then Dr. Parminder Singh Sir (Deen Student Welfare) enlightened us with his valuable words. Our Principal Sir welcomed us to the GNDEC family and emphasized discipline, continuous learning, and making the most of opportunities. The day ended with the Chief Guest’s inspiring words, urging us to work with dedication and curiosity, leaving a memorable close to Day 1 of the induction program.*
 
 
+Day 2
+In the afternoon, Dr. Arashdeep Singh delivered an enlightening session on the pivotal role of food in a student’s life. He explained how balanced nutrition plays a crucial part in maintaining physical health, mental sharpness, and overall academic performance, while also encouraging us to adopt mindful eating habits. This was followed by an interactive session with our seniors, who introduced the Causmic Club — a platform for innovation, creativity, and collaborative learning. They also launched the induction activities, starting with the creation of a repository on GitHub, designed to strengthen our technical skills from the very beginning. The day ended on an enthusiastic note, motivating us to participate wholeheartedly in the upcoming programs.
+
 
 
