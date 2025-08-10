@@ -15,7 +15,10 @@ Then Dr. Parminder Singh Sir (Deen Student Welfare) enlightened us with his valu
 
 
 Day 2
-In the afternoon, Dr. Arashdeep Singh delivered an enlightening session on the pivotal role of food in a student’s life. He explained how balanced nutrition plays a crucial part in maintaining physical health, mental sharpness, and overall academic performance, while also encouraging us to adopt mindful eating habits. This was followed by an interactive session with our seniors, who introduced the Causmic Club — a platform for innovation, creativity, and collaborative learning. They also launched the induction activities, starting with the creation of a repository on GitHub, designed to strengthen our technical skills from the very beginning. The day ended on an enthusiastic note, motivating us to participate wholeheartedly in the upcoming programs.
+
+In the afternoon, Dr. Arashdeep Singh delivered an enlightening session on the pivotal role of food in a student’s life. He explained how balanced nutrition plays a crucial part in maintaining physical health, mental sharpness, and overall academic performance, while also encouraging us to adopt mindful eating habits.
+
+This was followed by an interactive session with our seniors, who introduced the Causmic Club — a platform for innovation, creativity, and collaborative learning. They also launched the induction activities, starting with the creation of a repository on GitHub, designed to strengthen our technical skills from the very beginning. The day ended on an enthusiastic note, motivating us to participate wholeheartedly in the upcoming programs.
 
 
 
