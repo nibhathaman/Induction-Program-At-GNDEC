@@ -10,7 +10,7 @@ Later, Dr. Harpreet Kaur Grewal Mam , Head of the Applied Science Department, ad
 1. Life is a continuous function, always evolving.
 2. Beginnings should be rooted in prayer, patience, persistence, perseverance, and above all, honesty.
 
-*Her words reminded us that while skills and knowledge matter, it is honesty that shapes our character and guides us towards lasting success*.
+**Her words reminded us that while skills and knowledge matter, it is honesty that shapes our character and guides us towards lasting success**.
 
 Then Dr. Parminder Singh Sir (Deen Student Welfare) enlightened us with his valuable words. Our Principal Sir welcomed us to the GNDEC family and emphasized discipline, continuous learning, and making the most of opportunities. The day ended with the Chief Guest’s inspiring words, urging us to work with dedication and curiosity, leaving a memorable close to Day 1 of the induction program.*
 
