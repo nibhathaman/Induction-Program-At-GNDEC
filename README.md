@@ -7,8 +7,8 @@
 *The session continued with Mr. Harsimran Singh, who told us about the college’s accreditations and various student societies. Soon after, the lights dimmed and the screen lit up with glimpses of GNDEC’s proud alumni. Their journeys, from sitting in the same auditorium seats as us to achieving remarkable milestones, were truly inspiring and made us believe that we, too, could walk such paths.*
 
 *Later, Dr. Harpreet Kaur Grewal Mam , Head of the Applied Science Department, addressed us in a thoughtful session on how to glorify ourselves. She reassured us, sharing simple yet powerful ideas:*
-# 1. Life is a continuous function, always evolving.
-# 2. Beginnings should be rooted in prayer, patience, persistence, perseverance, and above all, honesty.
+1. Life is a continuous function, always evolving.
+2. Beginnings should be rooted in prayer, patience, persistence, perseverance, and above all, honesty.
 
 **Her words reminded us that while skills and knowledge matter, it is honesty that shapes our character and guides us towards lasting success**.
 
@@ -26,12 +26,12 @@
 *The day began with a session by Dr. Jaswinder Singh (Incharge, IAPT). Initially, it focused on Science and Mathematics, but soon it transformed into a very engaging and spiritual discussion. Dr. Singh shared inspiring stories about Guru Nanak Dev Ji, which I enjoyed greatly.*
 
 *He emphasized that science is about knowing, but true learning goes beyond studying. "Don’t just study, learn"—this was his key message. We must learn deeply, because real understanding matters more than rote memorization. The session included various science-related activities and even a short meditation, which made it unique. It was less about materialistic or external matters and more about understanding ourselves at a deeper, eternal level.*
-# One very motivating poem was recited by him: 
+**One very motivating poem was recited by him:**
 
-# "ਸੀਨੇ ਖਿਚ ਜਿਨ੍ਹਾਂ ਨੇ ਖੜੀ
-# ਓ ਕਰ ਆਰਾਮ ਨਹੀਂ ਭੇਂਦੇ
-# ਨੇਹੋਂ ਵਾਲੇ ਨੈਣਾ ਦੀ ਨੀਂਦਰ
-# ਓ ਦਿਨ ਰਾਤ ਪਏ ਵਹੇਂਦੇ।"
+**"ਸੀਨੇ ਖਿਚ ਜਿਨ੍ਹਾਂ ਨੇ ਖੜੀ**
+**ਓ ਕਰ ਆਰਾਮ ਨਹੀਂ ਭੇਂਦੇ**
+**ਨੇਹੋਂ ਵਾਲੇ ਨੈਣਾ ਦੀ ਨੀਂਦਰ**
+**ਓ ਦਿਨ ਰਾਤ ਪਏ ਵਹੇਂਦੇ।"**
 
 *The next session was conducted by Dr. M. Priyadarshini on Universal Human Values. We explored what it truly means to live a fulfilling life and sustain continuous happiness. Through interactive discussions, we understood that happiness is not dependent solely on physical comforts but also on our inner state and relationships with others. She explained that there are three key requirements for lasting happiness—right understanding (clarity about life and its purpose), relationships (built on trust and respect), and physical facilities (adequate resources to live comfortably).*
 
